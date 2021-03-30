@@ -1,4 +1,12 @@
-### Hi there 👋
+### Tommy is here. Tommy is there. Tommy is everywhere. 👋
+
+😄 Pronouns:he/him/duuude 
+
+🔭 I’m currently working on a way to help my fellow techies live a more fulfilling and happier life. Yaaaayyy!!! 👯 
+
+🌱 I am in the process of reviewing methods and processes of using Python and Django...
+
+ ⚡ Fun fact: Having fun releases endorphins which cause us to live longer.
 
 <!--
 **tommytoyou/tommytoyou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
