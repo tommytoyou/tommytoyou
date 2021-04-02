@@ -1,4 +1,4 @@
-### 🐬 I believe it is our duty to make the world a better place,,, for all of its species. 🐳
+### 🐬 I believe it is our duty to make Earth a better place,,, for all of its species. 🐳
 
 😄 Pronouns:he/him/duuude 
 
