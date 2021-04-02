@@ -1,4 +1,4 @@
-### Tommy is here. Tommy is there. Tommy is everywhere. 👋
+### I believe it is our duty to make the world a better place,,, for all of its species. 👋
 
 😄 Pronouns:he/him/duuude 
 
