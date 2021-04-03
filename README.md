@@ -6,7 +6,7 @@
 
 😄 We are all, even you and me, powerful, beautiful, extraordinary beings who can bring wonder to the world.
 
-🌱 I am in the process of reviewing methods and processes of using Python and Django...
+🌱 I am reviewing the methods and processes of using Python and Django...
 
  ⚡ Fun fact: Having fun releases endorphins which cause us to live longer.
 
