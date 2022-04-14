@@ -2,7 +2,7 @@
 
 😄 Pronouns:he/him/duuude 
 
-🔭 I’m currently working on a bachelor'sdegree in order to live a more fulfilling and happier life. Yaaaayyy!!! 👯 
+🔭 I’m currently working on a bachelor's degree in order to live a more fulfilling and happier life. Yaaaayyy!!! 👯 
 
 😄 We are all, even you and me, powerful, beautiful, extraordinary beings who can bring wonder to the world.
 
