@@ -1,6 +1,6 @@
 ### 🐬 I believe it is our duty to make Earth a better place,,, for all of its species. 🐳
 
-😄 Pronouns:he/him/duuude 
+😄 Pronouns:he/him 
 
 🔭 I’m currently working on a bachelor's degree in order to live a more fulfilling and happier life. Yaaaayyy!!! 👯 
 
