@@ -1,13 +1,14 @@
-### 🐬 I believe it is our duty to make Earth a better place,,, for all of its species. 🐳
+### 🐬 Let's make the human space a better place for all people for all time. 🐳
 
 😄 Pronouns:he/him 
 
+@IamTomErickson ♂ across all platforms,,, um, except GitHub
+
 🔭 I’m currently working on a bachelor's degree in order to live a more fulfilling and happier life. Yaaaayyy!!! 👯 
 
-😄 We are all, even you and me, powerful, beautiful, extraordinary beings who can bring wonder to the world.
+😄 We are all, even you and me, powerful, beautiful, extraordinary beings capable of effecting positie change within themselves and thier environement when we choose to. #iChooseTo
 
-
- ⚡ Fun fact: Having fun releases endorphins which cause us to live longer.
+⚡ Fun fact: Having fun releases endorphins which cause us to live longer.
 
 <!--
 **tommytoyou/tommytoyou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
