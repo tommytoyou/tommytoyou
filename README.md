@@ -4,7 +4,7 @@
 
 @IamTomErickson ♂ across all platforms,,, um, except GitHub
 
-🔭 I’m currently working on a bachelor's degree in order to live a more fulfilling and happier life. Yaaaayyy!!! 👯 
+🔭 I just graduated (12/25) with  a bachelor's of science in Project Management, summa cum laude ( 3.91 GPA) hoping to live a more fulfilling and happier life.Yaayy!!! 👯 
 
 😄 We are all, even you and me, powerful, beautiful, extraordinary beings capable of effecting positie change within ourselves and our environement when we choose to. #iChooseTo
 
