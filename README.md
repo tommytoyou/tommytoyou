@@ -1,6 +1,5 @@
 ### 🐬 Let's make the human space a better place for all people for all time. 🐳
 
-😄 Pronouns:he/him 
 
 @IamTomErickson ♂ across all platforms,,, um, except GitHub
 
